@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Koziy-Polina
 - 👀 I’m interested in creating websites
-- 🌱 I’m currently learning 7b
+- 🌱 I’m currently learning cretion of sites
 - 💞️ I’m looking to collaborate on Logica-shool
 - 📫 How to reach me throug Poland throug Ukraine and leave for Germany in the city of Pirmasens
 
